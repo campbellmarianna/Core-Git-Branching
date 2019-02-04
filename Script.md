@@ -27,7 +27,7 @@ The smell of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 Sky met the Unicorn King who granted him magic powers.
-The end.
+The Unicorn King and Sky created a universe of hacker unicorns and walked off into the sunset.
 
 ## Cast
 
